@@ -1,1 +1,1 @@
-# www.Osanda-Dilukshara-Jayakodi.lk
+# www.osanda-dilukshara-jayakodi.lk
